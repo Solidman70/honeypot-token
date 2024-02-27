@@ -12,7 +12,6 @@ Video tutorial Step By Step Guide
 
 **For mre receive code and  tutorial Contact me on Telegram : https://t.me/ME7235**
 
-
 Any queries?
 
 If you need my help for free contact me.: https://t.me/ME7235# honeypot-token
